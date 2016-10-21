@@ -1,3 +1,3 @@
 Ravi Singroli
 9074119641
-MP
+Bhopal (MP)
